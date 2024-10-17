@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Taicoono
-- 👀 I’m interested in learning the art of porgrammuing and computer science in generell
+- 👀 I’m interested in learning the art of porgramming and computer science in generell
 - 🌱 I’m currently learning with the harvard online courses
 - 💞️ I’m looking to collaborate on nothing yet
 - 📫 How to reach me private message me on here
